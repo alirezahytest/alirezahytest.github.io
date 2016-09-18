@@ -1,1 +1,1 @@
-# alirezahytest.github.io
+alireza.one/privacy
